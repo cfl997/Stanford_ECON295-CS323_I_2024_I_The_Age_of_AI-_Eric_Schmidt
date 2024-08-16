@@ -1,0 +1,2 @@
+斯坦福_ECON295⧸CS323_I_2024_I_人工智能时代，_Eric_Schmidt
+中文ZH-CN
